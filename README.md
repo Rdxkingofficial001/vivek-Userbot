@@ -1,7 +1,7 @@
 ### 🥀 𝐀𝐧 𝐀𝐝𝐯𝐚𝐧𝐜𝐞𝐝 𝐚𝐧𝐝 𝐁𝐞𝐬𝐭 𝐒𝐦𝐚𝐫𝐭 𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐔𝐬𝐞𝐫𝐁𝐨𝐭 𝐖𝐢𝐭𝐡 𝐕𝐂 𝐏𝐥𝐚𝐲𝐞𝐫 𝐁𝐚𝐬𝐞𝐝 𝐎𝐧 𝐏𝐲𝐫𝐨𝐠𝐫𝐚𝐦 ✨ ...
 
 
-<p align="center"><a href="https://t.me/adityahalder"><img src="https://telegra.ph/file/027283ee9defebc3298b8.png"></a></p>
+<p align="center"><a href="https://t.me/salaar_op"><img src="https://graph.org/file/0a2cc9c699f2cc62678ff.jpg"></a></p>
 
 
 
@@ -21,4 +21,4 @@
 #### 𝑪𝒐𝒑𝒚 𝑷𝒂𝒔𝒕𝒆𝒓𝒔 𝒀𝒐𝒖 𝑪𝒂𝒏 𝑪𝒐𝒑𝒚 𝑻𝒉𝒊𝒔, 𝑩𝒖𝒕 𝑴𝒖𝒔𝒕 𝑮𝒊𝒗𝒆 𝑪𝒓𝒆𝒅𝒊𝒕𝒔 ...
 
 ### 𝐎𝐰𝐧𝐞𝐫 𝐎𝐟 𝐓𝐡𝐢𝐬 𝐑𝐞𝐩𝐨𝐬𝐢𝐭𝐨𝐫𝐲
-[![Aditya Halder](https://graph.org/file/6acccbdfa7ec39ea0d0fe.jpg)](https://t.me/salaar_op)
+[![Aditya Halder](https://graph.org/file/0a2cc9c699f2cc62678ff.jpg)](https://t.me/salaar_op)
